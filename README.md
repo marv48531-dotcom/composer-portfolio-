@@ -37,7 +37,7 @@ Deeply rooted in West African folklore around sleep postures and "dream walking,
 Open for indie film scoring, game sound design, and custom track commissions.
 
 * **Email:** [marv48531@gmail.com](mailto:marv48531@gmail.com)
-* **Instagram:** [@marvellousfrancis](https://instagram.com)
+* **Instagram:** [marvie_compose](https://instagram.com)
 
 ---
 © Marvellous Francis. All rights reserved.
